@@ -1,5 +1,5 @@
-Fellow workman of the scriptures.
-Called by the Gospel of Grace.
+Fellow workman of the scriptures.</br>
+Called by the Gospel of Grace.</br>
 KJV Rightly Divided.
 
 
